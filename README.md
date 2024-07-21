@@ -1,3 +1,4 @@
 - [https://www.reddit.com/user/Former_Variety1877/](https://www.reddit.com/user/Former_Variety1877/)
 - [https://x.com/n875345](https://x.com/n875345)
 - [https://medium.com/@n875345](https://medium.com/@n875345)
+- [https://www.quora.com/profile/N875345](https://www.quora.com/profile/N875345)
